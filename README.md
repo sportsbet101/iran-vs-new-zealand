@@ -1,1 +1,1 @@
-# iran-vs-new-zealand
+-   [by bet casino](https://www.bybetph.com) --- Iran vs New Zealand Prediction, Team News and Betting Preview
